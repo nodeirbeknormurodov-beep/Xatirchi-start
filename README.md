@@ -1,0 +1,2 @@
+# Xatirchi-start
+Avto
